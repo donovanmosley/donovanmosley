@@ -6,4 +6,4 @@ I'm a business analyst and web developer who is passionate about making software
 * https://www.linkedin.com/in/donovanmosley/
 * https://twitter.com/CreationsLion
 
-⚡ Fun fact: I love Roller Blading and Blacksmithing
+⚡ Fun fact: I love hiking and roller blading
